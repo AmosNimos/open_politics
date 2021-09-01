@@ -1,11 +1,3 @@
-# Introduction
-Here we will establish how politics was, is, and what it could be.
-What would be the closest thing we could get to a utopian political system.
-never forget that utopie is verry close to distopy and that often both are cut from the same cloth.
-none system could please, all but what system could leave the most people content, reduce death, and improve well living as much as to balance the right and freedom of all.
-This page is for deep analisis of political ideology with historical example.
-How could a "perfect" scociety be build?
-
 ## Rent on Communism
 Communist failed mostly because it never was a thing, 
 their was only tyranny and totalitarian government, 
