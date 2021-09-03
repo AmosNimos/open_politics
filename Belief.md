@@ -1,4 +1,4 @@
-﻿# God
+# God
 If their is a god, it’s not the one from any religion. It’s something else, but as a general concept describing an entity responsible for the origin of event that formed our universe, then the answer is for now at least, we don't know and, we can’t know.
 
 Even if such a being existed, it would not explain it’s origins, and it would mean that our reality is by default a form of simulation inside another reality, maybe reality is just a dream in another being head, again for now, we don't know and, we can’t know..
