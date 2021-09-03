@@ -5,7 +5,7 @@ Even if such a being existed, it would not explain it’s origins, and it would 
 
 # Religions
 
-B.I.B.L.E - Book of Intolerant Bigotry and Laughable Explanations.
+B.I.B.L.E - Book of Intolerance Bigotry and Laughable Explanations.
 
 True religious freedom, is freedom from religion. 
 
