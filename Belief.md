@@ -3,19 +3,19 @@ If their is a god, it’s not the one from any religion. It’s something else, 
 
 Even if such a being existed, it would not explain it’s origins, and it would mean that our reality is by default a form of simulation inside another reality, maybe reality is just a dream in another being head, again for now, we don't know and, we can’t know..
 
-#Religions
+# Religions
 
 B.I.B.L.E - Book of Intolerant Bigotry and Laughable Explanations.
 
 True religious freedom, is freedom from religion. 
 
-#Creationism
+# Creationism
 
 Their is not better example of narcissism then to think the world has been made for you or a group your a part of.
 
 Hell and haven are just the most basic form of carrots and sticks based propaganda.
 
-#Faith 
+# Faith 
 knowledge is demonstrable.
 
 Hitchens has phrased the razor in writing as "What can be asserted without evidence can also be dismissed without evidence."
