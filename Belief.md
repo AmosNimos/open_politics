@@ -1,3 +1,6 @@
+> This text is not yet ordered, reviewed or even finished, it's only a draft of a concept of a potential hypothesis.
+> All these claim are until profe of the countrary but luckilly since religion has existed for so long, we don't lack data.
+
 # God
 If their is a god, it’s not the one from any religion. It’s something else, but as a general concept describing an entity responsible for the origin of event that formed our universe, then the answer is for now at least, we don't know and, we can’t know.
 
@@ -420,7 +423,20 @@ A good benevolent honest god like being would not need you to believe or have fa
 
 Because religious people are delusional doesn't mean they are bad, they just assume to know what can't be known, and prefer to "believe" and have "faith" which is to quotes the Oxford Languages "spiritual apprehension rather than proof." it's a form of ignorance, and by that I mean no insult, I mean only to define the word I use clearly in the right context. Christian who pretend they Know X or that the Bible is remotely factual are either bullshiting you, them self, or both... with all due respect. have a good day I know this was harsh but feel free to rebuke in the comment if your disagree with this conclusion. as to my personal opinion I don't see any benefit to religion, but I do see a lot of side effect of having shared disillusion reinforce by dogma and peer pressure. Any organization that require to be blind to logic, facts and reality in favor of mythology or spiritual fantasy is unhealthy and should not be as widely tolerated as it is... but hey we still have fast-food, alcohol and Tabaco on store shelf, if Humans knew what was good for them, we would know it be now...
 
+Religions are meme (by definition), one that spread delusion maybe, but one none the less. 
 
+### Definition of meme:
+```
+/mēm/
+Prononciation
+noun
+an element of a culture or system of behavior that may be considered to be passed from one individual to another by nongenetic means, especially imitation.
+```
+[source](https://www.lerobert.com/)
+
+It's religions that I despise, but religious peoples, I only have pity for them.
+
+Faith is like having confidence in something's without sufficient reason to... would that be basically the same as being naïve in a way? 
 
 
 
