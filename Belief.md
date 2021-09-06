@@ -16,7 +16,7 @@ True religious freedom, is freedom from religion.
 
 Their is not better example of narcissism then to think the world has been made for you or a group your a part of.
 
-Hell and haven are just the most basic form of carrots and sticks based propaganda.
+Hell and haven are just the most basic form of carrots and sticks based manipulative behevioral conditioning.
 
 # Faith 
 knowledge is demonstrable.
