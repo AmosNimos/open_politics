@@ -1,5 +1,5 @@
 > This text is not yet ordered, reviewed or even finished, it's only a draft of a concept of a potential hypothesis.
-> All these claim are until profe of the countrary but luckilly since religion has existed for so long, we don't lack data.
+> All these claim are only true until profen wrong, but luckily since religion has existed for so long, we don't lack data.
 
 # God
 If their is a god, it’s not the one from any religion. It’s something else, but as a general concept describing an entity responsible for the origin of event that formed our universe, then the answer is for now at least, we don't know and, we can’t know.
