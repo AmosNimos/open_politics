@@ -1,3 +1,5 @@
+> This is all just unpolished draft of a rent nothing final.
+> 
 Must of the Utopian according to my self.
 First thing to know is that no utopie can be trully described with words, our language are flawd and so will any ideology we express trough them. bu this is just mear suggestion.
 
