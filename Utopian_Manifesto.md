@@ -1,3 +1,14 @@
+Must of the Utopian according to my self.
+First thing to know is that no utopie can be trully described with words, our language are flawd and so will any ideology we express trough them. bu this is just mear suggestion.
+
+A universal world wide language. the key to solving conflict is often in communication, which is harder when both side of a conflict do not understand each other, esperento had this goal but failed, english almost succeded for now at being an international language but not necesserly for good reason. the language must be quick and easy to learn and avoid eception, it must be practical for everyday use and more technical needs. and finally should not be built on any individual culture but rather on practicallity.
+
+when somthing is ineficient and has been proven out of any doupt as ineficient it should be changed.
+i still use a qwerty keyboard, because of stupid tradition, when it come in the way of progress tradition need to be cutoff.
+
+human are not the solution for utopia every society rulled or built by human can only become a dystopie and never a utopie, since a perfect scociety cannot be built and run by imperfect, fundamentally illogical being.
+
+
 ## Rent on Communism
 Communist failed mostly because it never was a thing, 
 their was only tyranny and totalitarian government, 
