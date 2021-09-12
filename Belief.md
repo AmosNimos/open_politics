@@ -438,9 +438,13 @@ It's religions that I despise, but religious peoples, I only have pity for them.
 
 Faith is like having confidence in something's without sufficient reason to... would that be basically the same as being naïve in a way? 
 
+Every religion is based on some form of ego centrism, be it that a powerfull being care about them or that the world turn around them in a way, that would take me a lot of faith/naivety to not question such interesting claims, they often fool them self into believing in mythology and fantasy story  as if they where history or reality, but this is just trying to be part of somthing special somthing extroadinary but the probleme is that somtime reality isint extroadinary enaugh for some people so they need to make them self belive in these magical tails, I am a skeptics of all religion and belief system that require that you make your self believe in disillusions that are baseless and in contradiction with reality. which is to say all religion and spirituality. 
 
+It is a pleague that has affected our scociety for too long, if we ever hope to live in a true modern scociety we cannot have such idiotic organisation spreading ignorance to the masses exploiting the hope of the desprete and the mind of the youngs.
 
+Indocrination and dogma of religious/spiritual kind of the sorts should only be a thing of a past era, that we look upon asking our self how could humanity once been so foolish.
 
+but sadly our world is still infected by these nocive non sensical manipulative belief system, 
 
 
 
