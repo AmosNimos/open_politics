@@ -446,7 +446,11 @@ Indocrination and dogma of religious/spiritual kind of the sorts should only be 
 
 but sadly our world is still infected by these nocive non sensical manipulative belief system, 
 
+One of the most despicable lies of religion that it use to defend it self, is it's claim that it spread value and benevolance and ethics, but these things exist outside of religion and are less bias when taken outside of dogma so this argument is complete bullshit, i have nothing against the good value that can be sprigled in religion text but i don't need religion to share these value.
 
+religion is undoutably a virus that affect logical thinking.
+
+https://www.youtube.com/watch?v=8r-e2NDSTuE
 
 
 
