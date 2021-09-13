@@ -452,5 +452,8 @@ religion is undoutably a virus that affect logical thinking.
 
 https://www.youtube.com/watch?v=8r-e2NDSTuE
 
+Why don't churches have WiFi?
+They don't wanna compete with an invisible power that actually works.
+
 
 
