@@ -451,9 +451,9 @@ One of the most despicable lies of religion that it use to defend it self, is it
 religion is undoutably a virus that affect logical thinking.
 
 
-[George Carlin (stand-up comedy)](https://www.youtube.com/watch?v=8r-e2NDSTuE)
+[George Carlin (stand-up comedy)](https://www.youtube.com/watch?v=2tp0UNcjzl8)
 
-[Aron Ra](https://www.youtube.com/watch?v=vquOuWx6NlA&t=1173s)
+[Aron Ra (reality check)](https://www.youtube.com/watch?v=vquOuWx6NlA&t=1173s)
 
 Why don't churches have WiFi?
 They don't wanna compete with an invisible power that actually works.
