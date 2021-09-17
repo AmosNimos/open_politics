@@ -1,6 +1,17 @@
 # The state of Covid based paranoia 
 
-> vaccination-passport is the definition of fashism.
+## Vaccination-passport is the definition of __fashism__. 
+
+---
+> How could you disagree with what is the basic definition of a word?
+__Fashism__ definition
+1: often capitalized : a political philosophy, movement, or regime (such as that of the Fascisti) that exalts nation and often race above the individual and that stands for a centralized autocratic government headed by a dictatorial leader, severe economic and social regimentation, and forcible suppression of opposition
+
+2: a tendency toward or actual exercise of strong autocratic or dictatorial control
+early instances of army fascism and brutality
+— J. W. Aldridge
+[merriam-webster](https://www.merriam-webster.com/dictionary/fascism)
+---
 
 Things are getting dire here in Quebec Canada, 
 our fundamental civil rights are being ignored, I am baffled at how far the propaganda, the ignorance, 
@@ -39,3 +50,13 @@ kids at school are getting prevented from going to activities if they don't have
 
 This is very similar to china scocial credit system which was just another tool of totalitarism discrimination.
 This is the unofficial way to force somoane to do somthing. this is basic scocial blackmail, do what they whant or else.
+
+The checks at the club’s doors, which admitted only those who could prove they are fully vaccinated, allowed at least a semblance of normality.
+
+“People can’t live their lives in the new world without them,” he said.
+
+
+
+Relatade webpage/blogs i found on this topics
+[forced-vaccines-health-fascism-and-medical-apartheid](https://billmuehlenberg.com/2021/06/09/forced-vaccines-health-fascism-and-medical-apartheid/)
+
