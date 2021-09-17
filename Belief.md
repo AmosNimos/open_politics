@@ -455,6 +455,8 @@ religion is undoutably a virus that affect logical thinking.
 
 [Aron Ra (reality check)](https://www.youtube.com/watch?v=vquOuWx6NlA&t=1173s)
 
+[atheist_logical_thinking](https://youtu.be/ikt8R_q0tBs)
+
 Why don't churches have WiFi?
 They don't wanna compete with an invisible power that actually works.
 
