@@ -15,7 +15,7 @@ early instances of army fascism and brutality
 [merriam-webster](https://www.merriam-webster.com/dictionary/fascism)
 ---
 
-At wost it's only good old manipulative excecive tyranny and abuse of power and othority.
+> At best it's only good old manipulative excecive tyranny and abuse of power and othority.
 
 #### Personal experience
 
