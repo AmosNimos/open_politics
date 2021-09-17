@@ -1,4 +1,7 @@
 # The state of Covid based paranoia 
+
+> vaccination-passport is the definition of fashism.
+
 Things are getting dire here in Quebec Canada, 
 our fundamental civil rights are being ignored, I am baffled at how far the propaganda, the ignorance, 
 the hate and discrimination is spreading. 
@@ -31,3 +34,8 @@ The funny thing about miss Information is that most people assume that it must b
 as long as people keep thinking this way things won't improve, they will keep getting worst.
 The most dangerous type of tyranny arise gradually unnoticed. As long as they don't make change too drastic, too fast, people will endure almost anything.
 just like a frog in the water will let it self be boiled alive, as long as the water temperature rise slowly enough.
+
+kids at school are getting prevented from going to activities if they don't have this vacination-passport.
+
+This is very similar to china scocial credit system which was just another weapon of totalitarism discrimination.
+This is the unofficial way to force somoane to do somthing. this is basic scocial blackmail, do what they whant or else.
