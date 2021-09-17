@@ -71,6 +71,7 @@ vaccine passport schemes are likely to exacerbate existing inequality.
 
 
 #### Others relatade webpage/blogs i found on this topics:
+> All converted in text only format with [textise.net](https://www.textise.net/)
 
 - [forced-vaccines-health-fascism-and-medical-apartheid](https://www.textise.net/showText.aspx?strURL=https%253A//billmuehlenberg.com/2021/06/09/forced-vaccines-health-fascism-and-medical-apartheid/#content)
 
