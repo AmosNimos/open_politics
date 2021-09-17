@@ -37,5 +37,5 @@ just like a frog in the water will let it self be boiled alive, as long as the w
 
 kids at school are getting prevented from going to activities if they don't have this vacination-passport.
 
-This is very similar to china scocial credit system which was just another weapon of totalitarism discrimination.
+This is very similar to china scocial credit system which was just another tool of totalitarism discrimination.
 This is the unofficial way to force somoane to do somthing. this is basic scocial blackmail, do what they whant or else.
