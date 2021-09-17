@@ -69,6 +69,13 @@ From mask mandates to business shutdowns, from church closings to schools shutte
 
 vaccine passport schemes are likely to exacerbate existing inequality.
 
+The Battle Against Corona Fascism Could Be the Existential Fight of Our Generation.
+
+that ridiculous face-covering mandates and draconian restrictions on the lives and livelihoods of ordinary working peoples will continue indefinitely for years, with no end in sight. Think I’m exaggerating? the World Health Organization is saying even a vaccine won’t “end the pandemic.”
+Will the end of the pandemic suffice to "end the pandemic."? i personally higly doupt it. 
+
+The data have been so falsified that the virus propagation might already been over and we wouldtn even know it...
+
 
 #### Others relatade webpage/blogs i found on this topics:
 > All converted in text only format with [textise.net](https://www.textise.net/)
