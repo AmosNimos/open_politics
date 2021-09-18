@@ -450,6 +450,13 @@ One of the most despicable lies of religion that it use to defend it self, is it
 
 religion is undoutably a virus that affect logical thinking.
 
+They shoved eggs back into chicken in 1906 with Jesus eminent return writen on them, why? to fool each others! that's how sick some of those religious folks can be. am not generalizing some of them are simply naïve ignorant gullible fools who believe in crazy impossible illogical bullshit that contradict reality. 
+
+Most Religion pretend to preach loves, at least when their not actively spreading hate, they preach loves however condition may apply, eligibility may vary, based on your area, race, sexuality or belief's, have faith and do not read the fine print for more details amen.
+
+Religion is a f*cking lucrative buisness, your selling bullshit and in most place you d'ont even get taxes or go to jail for doing so!
+I i d'idint had morals or a care for the future of man kind i would jump on that oportunity to make my self richer on the back of delusional despreat people.
+
 ### Youtube videos:
 
 - [George Carlin (stand-up comedy)](https://www.youtube.com/watch?v=2tp0UNcjzl8)
