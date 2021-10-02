@@ -36,6 +36,15 @@ It's deselusional egocentrism reinforce by a strong unconcious alter ego that is
 
 Morals exist independantly of relision and despite religion, religion only distort moral, include antiquated views and too often discriminatory idea.
 
+Religious belief and organisation are based on deep rooted fallacy, It's incoherence, contradiction and falsehood at it's core, so how could it not be a bad thing? some religion warn their follower of some Evil entity lurking in the shadow, but religions are evil entity with a scocietal imunity to act in daylight.
+
+i doupt it is wise to hope to find any credibility in such confused mess.
+
+but i don't have to point out every contradition to make my point, i don't even have to name one, i just have to clarify that
+their position is not based on logic, and at first most religious will try to deny that, but when cornered with logic, they will
+inevitably admit that their view was not based on logic and will not change based on logic. how could such a position not be dishonest.
+
+
 # Belief & objectivity
 
 Those who believe god exist are wrong, just like Those who believe god does not exist. the important denominator here is, “Beliefs” 
