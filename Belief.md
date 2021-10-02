@@ -30,6 +30,10 @@ The only things that require or desire your faith, is something trying to fool y
 
 faith is the most unreasonable position it is possible to have, because it is an assertion of unreasonable conviction, that is assumed without reasons and defended against all reason." Aron Ra
 
+Religion result in growing fanaticism, illogicality, irationality, unreasonability, and even __fantasy of purity__.
+
+It's deselusional egocentrism reinforce by a strong unconcious alter ego that is mistaken for a presence of divinity or ultimate truth, with disregard for reality, facts, logic and reason? 
+
 # Belief & objectivity
 
 Those who believe god exist are wrong, just like Those who believe god does not exist. the important denominator here is, “Beliefs” 
