@@ -457,6 +457,24 @@ Most Religion pretend to preach loves, at least when their not actively spreadin
 Religion is a f*cking lucrative buisness, your selling bullshit and in most place you d'ont even get taxes or go to jail for doing so!
 I i d'idint had morals or a care for the future of man kind i would jump on that oportunity to make my self richer on the back of delusional despreat people.
 
+Imagine how narcissistic and egocentric and pretentious one must be to think THEY __knows__ their is a form of life after death, and without any evidence reuired! and they expect us to share their belief? 
+
+When people cannot be reason with and have been indoctrinated into lies to the point of refusing to accept any other percepective. it is saddly too late for them.
+Their is nothing a logical person can say to reason with an ilogical unreasonable person.
+
+Faith is unreasonable, it is blind. 
+
+Spirituality and religion depend on people basing their perception of reality on willingful ignorance and and abstract feelings rather then fact.
+
+In no argumentations "I just know it." should be seen as a valide argument.
+
+I talked with people who knew less about their own religion and belief then i did, and yet they still tryed to feed me it's lies?
+
+People invent their own god, they create it as the incapsulation of their own view and opignions somtimes combine with some amounth of indoctrination, they use 
+their own god as an excuse for their view of the word. if they are racist, homophobic, sexist, it will be what their god preach, i never seen a believer disagree with their god. they all know what their god whant, because it's simply an alter ego. it's sad to see they don't even realise it.
+
+What they call god, is nothing but an alter ego of them self, ofcourse they can feel it!
+
 ### Youtube videos:
 
 - [George Carlin (stand-up comedy)](https://www.youtube.com/watch?v=2tp0UNcjzl8)
