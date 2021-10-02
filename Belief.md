@@ -481,6 +481,10 @@ their own god as an excuse for their view of the word. if they are racist, homop
 
 What they call god, is nothing but an alter ego of them self, ofcourse they can feel it!
 
+In conclusion, religiosity is associated with poorer reasoning performance during tasks that involve cognitive conflict. These effects may reflect learnt cognitive-behavioral biases toward intuitive decision making, rather than underlying abilities to understand complex logical rules or to maintain information in working memory. The effects are consistent in two large cohorts and robust across sociodemographic variables.
+[source](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5742220/)
+
+
 ### Youtube videos:
 
 - [George Carlin (stand-up comedy)](https://www.youtube.com/watch?v=2tp0UNcjzl8)
