@@ -34,6 +34,8 @@ Religion result in growing fanaticism, illogicality, irationality, unreasonabili
 
 It's deselusional egocentrism reinforce by a strong unconcious alter ego that is mistaken for a presence of divinity or ultimate truth, with disregard for reality, facts, logic and reason? 
 
+Morals exist independantly of relision and despite religion, religion only distort moral, include antiquated views and too often discriminatory idea.
+
 # Belief & objectivity
 
 Those who believe god exist are wrong, just like Those who believe god does not exist. the important denominator here is, “Beliefs” 
