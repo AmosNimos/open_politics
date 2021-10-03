@@ -12,6 +12,8 @@ B.I.B.L.E - Book of Intolerance Bigotry and Laughable Explanations.
 
 True religious freedom, is freedom from religion. 
 
+Science is nature's truth, religion is mankind's deceit.
+
 # Creationism
 
 Their is not better example of narcissism then to think the world has been made for you or a group your a part of.
