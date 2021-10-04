@@ -50,6 +50,7 @@ but i don't have to point out every contradition to make my point, i don't even 
 their position is not based on logic, and at first most religious will try to deny that, but when cornered with logic, they will
 inevitably admit that their view was not based on logic and will not change based on logic. how could such a position not be dishonest.
 
+Most congnitive bias are evelly involved in faith and religious belief. understanding and acounting for these bias, is an important step in escaping these déception.
 
 # Belief & objectivity
 
