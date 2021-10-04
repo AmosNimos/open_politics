@@ -14,6 +14,10 @@ True religious freedom, is freedom from religion.
 
 Science is nature's truth, religion is mankind's deceit.
 
+Religion have historically been the single most influential source of mass delusion to plague humanity.
+
+They are exempt from the standard that we as a scociety have establish to prevent lies, trickery and abuse.
+
 # Creationism
 
 Their is not better example of narcissism then to think the world has been made for you or a group your a part of.
