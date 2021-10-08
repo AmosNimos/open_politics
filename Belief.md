@@ -1,10 +1,23 @@
 > This text is not yet ordered, reviewed or even finished, it's only a draft of a concept of a potential hypothesis.
 > All these claim are only true until profen wrong, but luckily since religion has existed for so long, we don't lack data.
 
-# God
-If their is a god, it’s not the one from any religion. It’s something else, but as a general concept describing an entity responsible for the origin of event that formed our universe, then the answer is for now at least, we don't know and, we can’t know.
+# Atheism
+Atheism disbelief or lack of belief in the existence of God or gods.
+We need more definition then, if you believe that no god exist, you are an atheism, so far so good, if you don't believe and only notice that there is a lack of reasonable proof and so you refuse to take position on the topic, are you an atheist? If you are against the very premises of religion and faith regardless of the existence of paranormal entities, are you an atheist?
 
-Even if such a being existed, it would not explain it’s origins, and it would mean that our reality is by default a form of simulation inside another reality, maybe reality is just a dream in another being head, again for now, we don't know and, we can’t know..
+It their no word that would be define as the sum of
+Anti-belief, anti-religion, anti-bullshit, anti-illogical, anti-delusion, anti-lies?
+Yes there is, it's called being __reasonable__! If people were not so illogical and unreasonable, religion would long have been gone, it would most probably never been a thing in the first place, if people simply called out its dishonesty.
+The only reason why it is still a thing in the so called __Modern world__ is only the result in our inability to apply rigorous standard on those so called __controversial__ topic. 
+
+People desperately want to believe in the impossible, the unreal and the magical, but the difference between sanity and insanity is the ability to distinguish these fiction from reality.
+
+
+
+# God
+If there is a god, it’s not the one from any religion. It’s something else, but as a general concept describing an entity responsible for the origin of event that formed our universe, then the answer is for now at least, we don't know and, we can’t know.
+
+Even if such a being existed, it would not explain its origins, and it would mean that our reality is by default a form of simulation inside another reality, maybe reality is just a dream in another being head, again for now, we don't know and, we can’t know..
 
 # Religions
 
@@ -16,59 +29,60 @@ Science is nature's truth, religion is mankind's deceit.
 
 Religion have historically been the single most influential source of mass delusion to plague humanity.
 
-They are exempt from the standard that we as a scociety have establish to prevent lies, trickery and abuse.
+They are exempt from the standard that we as a society have establish to prevent lies, trickery and abuse.
 
 # Creationism
 
-Their is not better example of narcissism then to think the world has been made for you or a group your a part of.
+There is no better example of narcissism then to think the world has been made for you or a group you’re a part of.
 
-Hell and haven are just the most basic form of carrots and sticks based manipulative behevioral conditioning.
+Hell and haven are just the most basic form of carrots and sticks based manipulative behavioral conditioning.
 
 # Faith 
-knowledge is demonstrable.
+Knowledge is demonstrable.
 
 Hitchens has phrased the razor in writing as "What can be asserted without evidence can also be dismissed without evidence."
-test
-
 Three most dangerous word in the English language "Just have faith."
 
 The only things that require or desire your faith, is something trying to fool you.
 
-faith is the most unreasonable position it is possible to have, because it is an assertion of unreasonable conviction, that is assumed without reasons and defended against all reason." Aron Ra
+Faith equal gullibility.
 
-Religion result in growing fanaticism, illogicality, irationality, unreasonability, and even __fantasy of purity__.
+Faith is the most unreasonable position it is possible to have, because it is an assertion of unreasonable conviction which is assumed without reasons and defended against all reason." Aron Ra
 
-It's deselusional egocentrism reinforce by a strong unconcious alter ego that is mistaken for a presence of divinity or ultimate truth, with disregard for reality, facts, logic and reason? 
+Religion result in growing fanaticism, illogicality, irrationality and fantasy sometimes __fantasy of purity__ or self-importance.
 
-Morals exist independantly of relision and despite religion, religion only distort moral, include antiquated views and too often discriminatory idea.
+Its delusional egocentrism reinforce by a strong unconscious alter ego that is mistaken for a presence of divinity or ultimate truth, with disregard for reality, facts, logic and reason? 
 
-Religious belief and organisation are based on deep rooted fallacy, It's incoherence, contradiction and falsehood at it's core, so how could it not be a bad thing? some religion warn their follower of some Evil entity lurking in the shadow, but religions are evil entity with a scocietal imunity to act in daylight.
+Morals exist independently of religion and despite religion, religion only distort moral, include antiquated views and too often discriminatory idea.
 
-i doupt it is wise to hope to find any credibility in such confused mess.
+Religious belief and organization are based on deep rooted fallacy, It's incoherence, contradiction and falsehood at its core, so how could it not be a bad thing? Some religion warn their follower of some Evil entity lurking in the shadow, but religions are evil entity with a societal immunity to act in daylight.
 
-but i don't have to point out every contradition to make my point, i don't even have to name one, i just have to clarify that
-their position is not based on logic, and at first most religious will try to deny that, but when cornered with logic, they will
-inevitably admit that their view was not based on logic and will not change based on logic. how could such a position not be dishonest.
+I doubt it is wise to hope to find any credibility in such confused mess.
+Doubt is religion biggest fear, because people could learn to think for them self, and that’s no good for a business of lies deceit.
+But I don't have to point out every contradiction to make my point, I don't even have to name one, I just have to clarify that
+Their position is not based on logic.
+At first most religious will try to deny that, but when cornered with logic, they will
+Inevitably admit that their view was not based on logic and will not change based on logic. How could such a position not be dishonest?
 
-Most congnitive bias are evelly involved in faith and religious belief. understanding and acounting for these bias, is an important step in escaping these déception.
+Most cognitive bias are heavily involved in faith and religious belief. Understanding and accounting for these bias, is an important step in escaping these deception.
 
 # Belief & objectivity
 
-Those who believe god exist are wrong, just like Those who believe god does not exist. the important denominator here is, “Beliefs” 
+Those who believe god exist are wrong, just like those who believe god does not exist. The important denominator here is, “Beliefs” 
 
-We do not have any reason to believe either of those declaration, and so we should not, just like with any declaration based on beliefs and not evidence, and even worst when those belief are presented as if they where fact, despise being completely base less. 
+We do not have any reason to believe either of those declaration, and so we should not, just like with any declaration based on beliefs and not evidence, and even worst when those belief are presented as if they were fact, despise being completely baseless. 
 
 No one has to be indoctrinated into believing in science and
-because no one has to believe in science, we simply need to understand the principle at it's core.
+Because no one has to believe in science, we simply need to understand the principle at its core.
 
-The same way i understand how a ruler work, so i don’t need to believe in it’s measurement...
+The same way i understand how a ruler work, so i don’t need to believe in its measurement...
 
 The same way i don’t need to believe in math or programming, with enough of a general understanding and logic, you can just understand how it work, without having to rely on faith.
 
 For that without demonstrable fact there is no truth,
-fact need to be verifiable, otherwise we would give charlatan, the greatest tool for deceiving us.
+Fact need to be verifiable, otherwise we would give charlatan, the greatest tool for deceiving us.
 
-Their is multiple definition for "truth" but the way i come to use the therm is for "that without fact there is no truth" and fact need to be verifiable otherwise we would give charlatan the greatest tool for deceiving us.
+There is multiple definition for "truth" but the way I come to use the term is for "that without fact there is no truth" and fact need to be verifiable otherwise we would give charlatan the greatest tool for deceiving us.
 
 We need to have strict standard on what we accept as true otherwise nothing can be known.
 
@@ -77,11 +91,11 @@ Some religious people have the following attitude
 
 The entire religious concept is based around belief, and belief can be armful since they are based on nothing and are subject to bias and manipulation.
 
-To every programmer that toyed with simulating natural selection, genetic algorytems and neural network or even just played with Conway game of life... would understand that complexity can arise from simplicity. from chaotic randomness can arise order and function.
+To every programmer that toyed with simulating natural selection, genetic algorithms and neural network or even just played with Conway game of life... would understand that complexity can arise from simplicity. From chaotic randomness can arise order and function?
 
-So meny people have try to undermien the theory of evolution, so meny study have been made so meny book written then it's a disgrace for the human spiecies that some people still d'ont understant it, or even play willingful ignorance.
+So many people have try to undermine the theory of evolution, so many study have been made so many book written then it's a disgrace for the human species that some people still don’t understand it, or even play wishful ignorance.
 
-This is not a book on prof of evolution, They have been written and tested by more comprettent people then me.
+This is not a book on prof of evolution, They have been written and tested by more competent people then me.
 
 most of the argument i have heard against evolution comes down to this kind of logic: logic: Adults don’t come from children because we’ve never seen a child go to bed and wake up the next morning as an adult.
 
