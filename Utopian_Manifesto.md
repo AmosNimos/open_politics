@@ -25,7 +25,7 @@ No cost is too big for continual improvment, stagnation is the end of all civili
 ## Rent on Communism
 Communist failed mostly because it never was a thing, 
 their was only tyranny and totalitarian government, 
-far from what Vladimir Ilitch Lénine offered, but dead man dead man tell no tails... 
+far from what Vladimir Ilitch Lénine offered, but dead man tell no tails... 
 and now what people take for "communism" is just another historical dictatorship that contradict the true aim of communism.
 Totalitarianism could only be beneficial for the greater good when a machine will be ruling,
 without all the human flaws compromising the integrity of the system.
