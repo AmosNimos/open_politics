@@ -4,10 +4,11 @@ I will voluntarily avoid referring to specific cases in this document so that th
 If you need more specific example look at what religion and religious people say, and what they do, and see for yourself how my critic will inevitably apply.
 # Atheism
 Atheism disbelief or lack of belief in the existence of God or gods.
-We need more definition then, if you believe that no god exist, you are an atheism, so far so good, if you don't believe and only notice that there is a lack of reasonable proof and so you refuse to take position on the topic, are you an atheist? If you are against the very premises of religion and faith regardless of the existence of paranormal entities, are you an atheist?
+Then if you believe that no god exist, you are an atheism, so far so good, if you don't believe and only notice that there is a lack of reasonable proof and so you refuse to take position on the topic, are you an atheist? If you are against the very premises of religion and faith regardless of the existence of paranormal entities, are you an atheist?
+
 It their no word that would be define as the sum of
 Anti-belief, anti-religion, anti-bullshit, anti-illogical, anti-delusion, anti-lies?
-Yes there is, it's called being __reasonable__! If people were not so illogical and unreasonable, religion would long have been gone, it would most probably never been a thing in the first place, if people simply called out its dishonesty.
+Yes there is, it's called being __reasonable__! If people were not so fundamentally illogical and unreasonable, religion would long have been gone, it would most probably never been a thing in the first place, if people simply called out its dishonesty.
 The only reason why it is still a thing in the so called __Modern world__ is only the result in our inability to apply rigorous standard on those so called __controversial__ topic. 
 
 People desperately want to believe in the impossible, the unreal and the magical, but the difference between sanity and insanity is the ability to distinguish these fiction from reality.
