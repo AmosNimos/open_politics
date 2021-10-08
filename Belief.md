@@ -2,22 +2,39 @@
 > All these claim are only true until proven wrong, but luckily since religion has existed for so long, we don't lack data.
 I will voluntarily avoid referring to specific cases in this document so that the conclusion can still be applied to religion as a whole no matter the minor irrelevant differences. 
 If you need more specific example look at what religion and religious people say, and what they do, and see for yourself how my critic will inevitably apply.
-# Atheism
-Atheism disbelief or lack of belief in the existence of God or gods.
-Then if you believe that no god exist, you are an atheism, so far so good, if you don't believe and only notice that there is a lack of reasonable proof and so you refuse to take position on the topic, are you an atheist? If you are against the very premises of religion and faith regardless of the existence of paranormal entities, are you an atheist?
 
+
+# What this book is and is not about
+This book do not aim, to explain how some phenomenon have been proven to be wrong. Because there is already enough book and information on the specific explanations of each of those topics. The information is already there for those who
+Take the time to study and understand it.
+
+I don't need to repeat what have already been explained clearly and his easily accessible information.
+
+I am not trying to explain why we know things. But rather why some people can't accept that we know things.
+
+Why some people try so hard to stay in denial of reality?
+
+Why they keep misunderstanding not understanding and keep believing in things even themselves know to be false?
+
+Why some people can't see that their core belief clearly contradict them self. Why do they still actively choose to believe in lie even when with simple basic logic they can be easily disprove?
+
+
+# What is Atheism
+Atheism disbelief or lack of belief in the existence of God or gods.
+We need more definition then, if you believe that no god exist, you are an atheism, so far so good, if you don't believe and only notice that there is a lack of reasonable proof and so you refuse to take position on the topic, are you an atheist? If you are against the very premises of religion and faith regardless of the existence of paranormal entities, are you an atheist?
 It their no word that would be define as the sum of
 Anti-belief, anti-religion, anti-bullshit, anti-illogical, anti-delusion, anti-lies?
-Yes there is, it's called being __reasonable__! If people were not so fundamentally illogical and unreasonable, religion would long have been gone, it would most probably never been a thing in the first place, if people simply called out its dishonesty.
+Yes there is, it's called being __reasonable__! If people were not so illogical and unreasonable, religion would long have been gone, it would most probably never been a thing in the first place, if people simply called out its dishonesty.
 The only reason why it is still a thing in the so called __Modern world__ is only the result in our inability to apply rigorous standard on those so called __controversial__ topic. 
 
 People desperately want to believe in the impossible, the unreal and the magical, but the difference between sanity and insanity is the ability to distinguish these fiction from reality.
-# God
+
+## God
 If there is a god, it’s not the one from any religion. It’s something else, but as a general concept describing an entity responsible for the origin of event that formed our universe, then the answer is for now at least, we don't know and, we can’t know.
 
 Even if such a being existed, it would not explain its origins, and it would mean that our reality is by default a form of simulation inside another reality, maybe reality is just a dream in another being head, again for now, we don't know and, we can’t know..
 
-# Religions
+## Religions
 
 B.I.B.L.E - Book of Intolerance Bigotry and Laughable Explanations.
 Need proof? Just take look at this book called __The Bible__ and see for yourself how accurately this definition apply.
@@ -32,13 +49,13 @@ They are exempt from the standard that we as a society have establish to prevent
 This is what I mean by mass delusion, they flourish under an absolute immunity to every standard of valid knowledge we have, they are sometimes even immune to some law that we have established as a society.
 Some people even deny that their religion is a religion, some people will even fool them self into believing that their belief are fact, and once again this is all result of delusion. 
 
-# Creationism
+## Creationism
 
 There is no better example of narcissism then to think the world has been made for you or a group you’re a part of.
 
 Hell and haven are just the most basic form of carrots and sticks based manipulative behavioral conditioning.
 
-# Faith 
+## Faith 
 Knowledge is demonstrable.
 Fact are provable.
 Hitchens has phrased the razor in writing as "What can be asserted without evidence can also be dismissed without evidence."
@@ -101,28 +118,20 @@ Most of the argument i have heard against evolution comes down to this kind of l
 
 And the theory still hold up to this day, which mean that so far we can consider it fact. When new information on the topic will arise that goes in a different direction will start to talk about possibilities, but so far no such information has appeared after all the research done on the topic.
 
-Dumb internet comment:
+## Christianity 
+I will often take christianity as an example in this text, because it is the religion i am the most familiar with, and it's probably one of the easiest to debunk.
+
+Internet comment i found:
 "I just don't want to be a slave to sins, I’m fighting every temptation that come my way in the name of Jesus Christ AMEN"
+
 My answer:
 And you need Christianity for that? You know the Christ as described by the bible is just a mythological character right?
 Except that in real life the only power of faith is to manipulate people with it, really bad for a society, should be avoided. It’s a form of willing ignorance and naivety. Faith is the narcissistic reaction to the unknown, even when that unknown can be known. Faith has no need for truth or rational in fact it work better if you’re a fool who has no standard on how to think. Faith is fuel for religion which is the worst thing to have happen to this world, they are organization that specialize in using faith to manipulate. Worst they indoctrinate the young with method similar to hypnosis and brainwashing, religions are all just synonymy for sect and cult, they all think their religion is right and all others are false without having more reason then the other to believe so.
 
+Christian belief keep being re written to fit new narative, god was once vangfull and a big asshole, so they splited him into two persona with one of them being 
+represented in the devil.
 
-Random letter that continue for infinity will at some point contain this exact book. 
-
-What this book is and is not about.
-This book do not aim, to explain how some phenomenon have been proven to be wrong. Because there is already enough book and information on the specific explanations of each of those topics. The information is already there for those who
-Take the time to study and understand it.
-
-I don't need to repeat what have already been explained clearly and his easily accessible information.
-
-I am not trying to explain why we know things. But rather why some people can't accept that we know things.
-
-Why some people try so hard to stay in denial of reality?
-
-Why they keep misunderstanding not understanding and keep believing in things even themselves know to be false?
-
-Why some people can't see that their core belief clearly contradict them self. Why do they still actively choose to believe in lie even when with simple basic logic they can be easily disprove?
+Same for Jesus Christ, their is some pasage where this all loving being turn some kids into stones, you might try to make excuses for these infoherence, religion often does, but the truth is way simpler, it's plain old human bullshit.
 
 Why would some fool themselves in believing in the unbelievable?
 
@@ -131,22 +140,23 @@ All belief are faith based and all faith is blind by definition. So people who u
 To willingly ignore reality in favor of conviction.
 
 You cannot have a good view of reality if you keep your self
-Blind to the fact. to the measurable quantifiable demonstrable truth that have been and are still tested and revised to be accurate!
+Blind to the fact. To the measurable quantifiable demonstrable truth that have been and are still tested and revised to be accurate!
 
 If you deny all of this then, we cannot prove anything!
-and if that was the case, then we do not have a reality. if everything is a lie and their is no way to tell lie from truth or to verify anything then we live in a delusion.
+And if that was the case, then we do not have a reality. If everything is a lie and there is no way to tell lie from truth or to verify anything then we live in a delusion.
 
-i do not believe that, i know that, and i can prove it, by simply bringing said definition, which will be included in this book.
+I do not believe that, i know that, and i can prove it, by simply bringing said definition, which will be included in this book.
 
-This book does not try to disprove any specific religions, their is too many of them, it would be a never ending struggle to individually disprove them. I might mention some of the currently the most spreading. 
+This book does not try to disprove any specific religions, there is too many of them, it would be a never ending struggle to individually disprove them. I might mention some of the currently the most spreading. 
 
 For most of the topics i will mention in this book, the fact mention, have been discovered and known since centuries ago.
-and since it's not new information, it is irrelevant to the reflection contained in this book, since they can't be included due to most needing to be contained in entire book of their own, to not leave place to misunderstanding.
+And since it's not new information, it is irrelevant to the reflection contained in this book, since they can't be included due to most needing to be contained in entire book of their own, to not leave place to misunderstanding.
 
 Some of those topics simply can't be resumed in a few sentence, without making them incomplete.
 
-Despite that some clearly deny logic and reality in favour of old fairy-tails and a shared delusion based on lie asserting baseless statement as tho they where true.
+Despite that some clearly deny logic and reality in favor of old fairy-tails and a shared delusion based on lie asserting baseless statement as though they were true.
 
+## Agnotology 
 If I had to categorize this book, it's not about atheism, science, or even religion, I would put it in the
 Agnotology category.
 
@@ -185,6 +195,7 @@ This book will mainly be in a quotes by quotes format, because
 To my opinion it make the information more concise pleasant to read
 And easier to digest.
 
+# definitions
 Here some definitions:
 
 What is a scientific theory?
@@ -194,7 +205,7 @@ A scientific theory differs from a scientific fact or scientific law in that a t
 What is the scientific method?
 The scientific method is an empirical method of acquiring knowledge that has characterized the development of science since at least the 17th century. It involves careful observation, applying rigorous skepticism about what is observed, given that cognitive assumptions can distort how one interprets the observation. It involves formulating hypotheses, via induction, based on such observations; experimental and measurement-based testing of deductions drawn from the hypotheses; and refinement (or elimination) of the hypotheses based on the experimental findings. These are principles of the scientific method, as distinguished from a definitive series of steps applicable to all scientific enterprises.
 
-What is an hypothesis?
+What is a hypothesis?
 Hypotheses is a proposed explanation for a phenomenon. For a hypothesis to be a scientific hypothesis, the scientific method requires that one can test it. Scientists generally base scientific hypotheses on previous observations that cannot satisfactorily be explained with the available scientific theories. Even though the words "hypothesis" and "theory" are often used anonymously, a scientific hypothesis is not the same as a scientific theory. A working hypothesis is a provisionally accepted hypothesis proposed for further research,[1] in a process beginning with an educated guess or thought.
 
 What is a cult?
@@ -224,6 +235,7 @@ n.	The mental act, condition, or habit of placing trust or confidence in another
 n.	Mental acceptance of and conviction in the truth, actuality, or validity of something.
 n.	Something believed or accepted as true, especially a particular tenet or a body of tenets accepted by a group of persons.
 
+## fact
 
 As a matter of fact:
 The Earth is an irregularly shaped ellipsoid.
@@ -244,58 +256,56 @@ We do share a common ape ancestor with chimpanzees. It lived between 8 and 6 mil
 
 The story of Noa Arch no matter how false it may be might hold a good moral if you look at it from the right perspective, no matter how mighty and superior to other animal you might think of yourself, where all in the same boat in this story.
 
+## spiritual egocentrism 
 No creature has been created FOR us.
 
 Animal indeed are devoid of souls, since soul itself does not exist!
 It was a made up explanation for phenomenon that we at the time did not understand.
 And when you try to explain what you don’t understand you either fooling you self or attempting to fool others.
 
-Contrary to some belief, We are not superior in every way to every other creature quite the contrary, in most cases we are only superior in a single way, and it's due to the exceptional development of the frontal cortex of our brain. that's does not even mean where smarter then other animal, just that this single specific aspect of our brain which allowed use to do so much, took priority in our evolution over other aspect of the brain, aspect where other animal are more developed then us.
+Contrary to some belief, we are not superior in every way to every other creature quite the contrary, in most cases we are only superior in a single way, and it's due to the exceptional development of the frontal cortex of our brain. that's does not even mean where smarter than other animal, just that this single specific aspect of our brain which allowed us to do so much, took priority in our evolution over other aspect of the brain, aspect where other animal are more developed then us.
 
-For example when it comes to fast visual recognition chimpanzees brain beat ours without doubt, and that's just one of many similar example. when it comes to the fact this narcissistic egocentric illusion of human superiority over other, is just wrong. even some insect have better biological design in some aspect. for example we would probably get less injury if we had an exoskeleton like many insect have, compare to the meet bag design we currently do have. also calcium is not the best material to make bones from. and those are just the first example that comes to mind. Not all religion deny evolution but most do so i taught clarifying this might be a good start.
+For example when it comes to fast visual recognition chimpanzees brain beat ours without doubt, and that's just one of many similar example. When it comes to the fact this narcissistic egocentric illusion of human superiority over other, is just wrong. Even some insect have better biological design in some aspect. For example we would probably get less injury if we had an exoskeleton like many insect have, compare to the meet bag design we currently do have. Also calcium is not the best material to make bones from. And those are just the first example that comes to mind. Not all religion deny evolution but most do so i taught clarifying this might be a good start.
 
-
+## respect
 I have always been taught that you need to respect other’s belief,
-but what if they are actively armful, objectively wrong. 
+But what if they are actively armful, objectively wrong. 
 
 I mean what god has believing in something did actually bring to us?
 Either we know something or we don’t, believing is a presumptuous way of having conviction in something we don’t know, and that can’t ever be good.
 
-We should try as much as we can to avoid believing, accept what we don’t know, and accept what we know, we can have taught and opinions but we should not fool are self in believing in them as if they where more then that, either those taught and opinion are confirm beyond reasonable doubt and have become fact, or they are just taught and opinions.
+We should try as much as we can to avoid believing, accept what we don’t know, and accept what we know, we can have taught and opinions but we should not fool are self in believing in them as if they were more than that, either those taught and opinion are confirm beyond reasonable doubt and have become fact, or they are just taught and opinions.
 
 Belief is nothing else then the assumption that we know something we don’t.
 But belief left unchecked can easily turn into denial.
 
-If someone believed something really strongly all their life, how could you present to them a reality where those belief prove unfounded.
+If someone believed something really strongly all their life, how could you present to them a reality where those belief prove unfounded?
 
-Their is multiple poison to having beliefs and yet so few if any benefits.
+There is multiple poison to having beliefs and yet so few if any benefits.
 
 The biggest lie of religions is that we need faith and belief.
 
 And that we need to accept faith and belief of others.
 
-
+## Deception
 To believe is to deceive.
-
-it their ever was a God and he made us, then he probably got lazy when it came to our design.
-
+Deceive one self, or one another.
 Religions are tool to manipulate the masses and keep them ignorant and naive,
-their is no exception to this rule, they act like an intrusive virus
-spreading and infecting society and corrupting people mind with lie and denial of reality, it as a perverse effect on society, it is
-a toxic concept that many where told to accept as if it deserved some sort
-of immunity.
+There is no exception to this rule, they act like an intrusive virus
+Spreading and infecting society and corrupting people mind with lie and denial of reality, it as a perverse effect on society, it is
+A toxic concept that many where told to accept as if it deserved some sort
+Of immunity.
+Religion invented faith as an excuse for people to believe in the unbelievable, with standards to appraise the validity of affirmation that are nonexistent.
 
-religion invented faith as an excuse for people to believe in the unbelievable, with standards to appraise the validity of affirmation that are nonexistent.
-
-Even belief it self is the act of sharing a thrust, be it baseless or not, in something be it true or not.
+Even belief itself is the act of sharing a thrust, be it baseless or not, in something be it true or not.
 
 Thrust need to be earn otherwise it is just nativity with confidence.
 
 Knowledge is the enemy of Faith.
 
-A theory is a fact whith some amounth of missing information, belief is missing information presented as fact.
+A theory is a fact with some amount of missing information, belief is missing information presented as fact.
 
-Some deny that their religion are religion, some call it spirituality instead as if it wasent just another synonime for a religion.
+Some deny that their religion are religion, some call it spirituality instead as if it wasn’t just another synonym for a religion.
 
 If you want to understand the concept of recursion listen to the argument of 
 a religious person trying to defend his belief from reality.
@@ -306,11 +316,12 @@ You want more atheists. Make Christians read their damn book.
 Isaac Asimov: “Properly read, the Bible is the most potent force for atheism ever conceived"
 God or not, evolution is still a fact and the bible is still wrong.
 
-what if i said this:
-Yes, I do have proof that God does not exist. It is perfect and irrefutable. I'm not going to show you however. You cannot see it or detect it in any way. You cannot deduct it from the laws of logic either. You might claim that I do in fact have no such proof. But you have no proof that I don't... 
-Sound familiar? it's called faith and it is the most nocive and dishonest approach you can have on any topics, it's not an argument, it's the lack their of.
+## Hypocresy
+What if I said this?
+Yes, I do have proof that God does not exist. It is perfect and irrefutable. You cannot see it or detect it in any way. You cannot deduct it from the laws of logic either. You might claim that I do in fact have no such proof. But you have no proof that I don't and if you did I would simply dismiss them, without further consideration. 
+Sound familiar? It’s called faith and it is the most disingenuous and dishonest approach you can have on any topics, it's not an argument, it's the lack thereof.
 
-Faith is A poor substitute for thinking.
+Faith is a poor substitute for thinking.
 
 A Charlatan greatest tool is faith.
 
@@ -318,10 +329,10 @@ The art of deceit is dependent on the on the will to believe.
 
 It's easier to believe lies than understand the truth.
 
-the religious believer last weal argument:
-"one day you will find out"
+The religious believer last weal argument:
+"One day you will find out"
 
-This is based on nothing, it's simply a meaningless threat, they them self have been conditioned to fear.
+This is based on nothing, it's simply a meaningless threat, they them self-have been conditioned to fear.
 
 We are all atheists about most of the gods that humanity has ever believed in. Some of us just go one god further.
 
@@ -342,54 +353,54 @@ Why would an all knowing, all powerful God need humans to do anything for him? H
 
 I am of the opinion, if God want it done, it WILL be done, therefor if it is NOT done, God doesn't want it done.
 
-You see someone who you think God wants dead, ask yourself, is that person dead? If the answer is no, then clearly god wants that person to be alive, or he doesn't care enough to smite him. Now, please stop killing people in the name of God.
+You see someone who you think God wants dead, ask yourself is that person dead? If the answer is no, then clearly god wants that person to be alive, or he doesn't care enough to smite him. Now, please stop killing people in the name of God.
+The idea that a god is omnipotent and all powerful and still need petty human to do is bidding sound like a great contradiction.
 
-if religion want to claim their bases are definitive. then they must claim that reality it self is frequently inaccurate.
+If religion want to claim their bases are definitive. Then they must claim that reality itself is frequently inaccurate.
 
 Believe those who are seeking the truth; doubt those who find it.
 
 At least when religion where created they tried to give people explanation for concept no one could explain at the time, which is bad enough already, but now that we do understand those concept those outdated made up explanation are even more wrong and more outrageous!
+## Mythology vs Reality
 
 Genesis 1:6-7 (New King James Version)
 "Then God said, “Let there be a [a]firmament in the midst of the waters, and let it divide the waters from the waters.” 7 Thus God made the firmament, and divided the waters which were under the firmament from the waters which were above the firmament; and it was so."
 
 Outer space is NOT full of water!!
 
-When the book of your religion claim to be perfect you don't have to prove it's all wrong, to disprove it. you just have to prove that a single element of it is, which is not that hard to do, when most of it and probably all of it, is.
+When the book of your religion claim to be perfect you don't have to prove its all wrong, to disprove it. You just have to prove that a single element of it is, which is not that hard to do, when most of it and probably all of it, is.
 
-Trying to prove somthing that is unprovable require no effort to be disproven.
+Trying to prove something that is unprovable require no effort to be disproven.
 
-prentending to know somthing that can't be known. make you not only a liar but a bad one at that.
+Pretending to know something that can't be known. Make you not only a liar but a bad one at that.
 
-believing in somthing that has already been proven to be false, is just waist of time. at least if your gonna believ, no matter how disonest it may be to do so. 
+Believing in something that has already been proven to be false, is just waste of time. At least if you’re going to believe in something regardless how dishonest and illogical it may be try to believe in information that we haven't already proven or disproven.
 
-try to belive in information that we haven't already proven or disproven.
+If it has been proven there is no need for belief, it's a truth.
+If it had been disproven there is no need for belief it's a lie.
 
-If it has been proven their is no need for belif, it's a truth.
-If it had been disproven their is no need for belif it's a lie.
+Like the old proverb said: 
+When you assume you make an “ASS” of “U” and “ME”.
 
-like the old proverb said: 
-When you assume you make an ASS of U and ME.
+# What do we need religion for?
 
-what do we need religion for?
-
-Religions did not invent values, and people can have values and ethics without them, in fact it is easier to share the best values from religions mentioon without the religious aspect of it.
+Religions did not invent values, and people can have values and ethics without them, in fact it is easier to share the best values from religions mention without the religious aspect of it.
 
 Values exist on their own, and in fact are better that way.
-"Respect other" for example seems like somthing we can all agree on without all the exception that religion add on top of or following the statement. 
+"Respect other" for example seems like something we can all agree on without all the exception that religion add on top of or following the statement. 
 
-And you should be able to follow those value for better reason then fear of a potantial most often not corelated devine threat, that can apparently be avoided if you repent hard enaugh after the fact.
+And you should be able to follow those value for better reason then fear of a potential most often not correlated divine threat that can apparently be avoided if you repent hard enough after the fact.
 
-It is not only possible to ask our self deep philosophical question without religion, it might be the only way to do so.
+It is not only possible to ask our self-deep philosophical question without religion, it might be the only way to do so.
 
-Nothing important need religion, and the ego is not exception.
-In fact if all the resource waisted on religions, where spend making the world a better place, the world would be a better place.
+Nothing important need religion, and the ego is no exception.
+In fact if all the resource wasted on religions, where spend making the world a better place, the world would be a better place.
 
-the value of religion are not based on reason, for example the promotion of "abstinance instead" of "sex education" by some religions only leed to more teen pragnancy in the area where those belifs where majoritarely taught, this is not an opignion this is a fact, an observation that can be shown with statisticall analasis. yet religion do not care about the outcome of the lie they tell. if they did they would stop affirming belief that are actively making life worse for those believing them.
+the value of religion are not based on reason, for example the promotion of "abstinence instead" of "sex education" by some religions only lead to more teen pregnancy in the area where those beliefs where majoritarily taught, this is not an opinion this is a fact, an observation that can be shown with statistical analysis. Yet religion do not care about the outcome of the lie they tell. If they did they would stop affirming belief that are actively making life worse for those believing them.
 
-If the pope really cared about helping the poor, he would no be sitting on a  20 feet tall golden chair while some are starving to death.
+If the pope really cared about helping the poor, he would not be sitting on a 20 feet tall golden chair while some are starving to death.
 
-As long as we do not reject those hurtfull organisation, humanity will be in a never ending idiocracy. where people are taught tolerrate intolerance, from groupe that whant the freedom to deny others freedom.
+As long as we do not reject those hurtful organization, humanity will be in a never ending idiocrasy. Where people are taught tolerate intolerance, from group that want the freedom to deny others freedom.
 
 We should not need to sugar coat facts.
 
@@ -423,6 +434,7 @@ Here are the big differences between science and religion.
 Science: here is the evidence, what conclusion can be draw from it?
  Religions: here is the conclusion, what evidence can be find to support it? What evidence needs to be suppressed so it won't be questioned?
 
+# Religious mindset
 When science is proven to be wrong, the information is embraced and science grows.
 When Religion is proven to be wrong, the information is buried and people are banished, imprisoned or killed.
 Argumentation without argument, has been studied a lot with the different type of bias, accusation and loop holes that a person might use to refuse to admit that they were wrong or that they lost an argument.
